@@ -1,4 +1,4 @@
-
+Bartender for macOS ultimate Automation - screenshot-tools and virtualization is the best Bartender for macOS automation, featuring screenshot-tools and virtualization. Safe,
 
 
 
